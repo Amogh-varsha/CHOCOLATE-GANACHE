@@ -1,0 +1,5 @@
+Chop your chocolate into small pieces and place in a bowl.
+Put your cream in a saucepan and place over medium heat. Allow cream to heat until simmering and almost boiling. Alternatively you can heat the cream in the microwave.
+Pour the hot cream over the chopped chocolate and let stand for about 3 minutes. Add your salt into the bowl at this point if using.
+Put your whisk into the center of the chocolate/cream mixture and begin whisking in small circles going in one direction and slowly moving outward in bigger circles until the mixture is smooth.
+Serve hot if using as for fondue, a chocolate fountain, or sipping chocolate. If using for a glaze or for stiff piping work, allow to cool for about 10 minutes before pouring. If using as a frosting, allow to cool at room temperature for about 4 hours and up to overnight. If making truffles, place the ganache in the refrigerator uncovered until the mixture becomes solid, about 1 hour, before scooping and shaping.
